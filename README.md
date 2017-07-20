@@ -1,2 +1,2 @@
 # DKSlider
-![Screenshot](http://gph.is/2uLupdt)
+![Screenshot](https://media.giphy.com/media/tUOhOSlJee6bK/giphy.gif)
